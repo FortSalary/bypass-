@@ -17,4 +17,8 @@
 ![failed image](https://i.ibb.co/MRFt9WN/Pics-Art-07-23-08-48-52.jpg)
 # sủi như con chó
 ![failed image](https://i.ibb.co/hWgTpkr/received-562069911486431.jpg)
-# khóa mẹ wall + out chính box của mình??? 
+# chửi tao trong project của m
+![failed image](https://i.ibb.co/QYcr1jW/IMG-20210723-210107.jpg)
+![failed image](https://i.ibb.co/qsn8L72/IMG-20210723-210053.jpg)
+# khóa mẹ wall + out chính box của mình tạo. NHỤC??? 
+![failed image](https://i.ibb.co/YkP1XFn/IMG-20210723-210622.jpg)
