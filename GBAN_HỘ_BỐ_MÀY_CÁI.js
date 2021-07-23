@@ -17,7 +17,7 @@ const {
 	execSync
 } = require('child_process');
 const logger = require("./utils/log.js");
-const login = require("@miraipr0ject/fca-unofficial");
+const login = require("fca-xuyen-get");
 const axios = require("axios");
 const listPackage = JSON.parse(readFileSync('./package.json'))
 	.dependencies;
