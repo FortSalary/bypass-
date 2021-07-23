@@ -2,4 +2,4 @@
 
 
 
-# tải file về đổi tên thành mirai.js nhét dô source
+# tải file về đổi tên thành mirai.js nhét dô source.
