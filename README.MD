@@ -12,6 +12,9 @@
 ![failed image](https://i.ibb.co/wWggb9D/Screenshot-2021-07-20-21-47-36-35.png)
 # nói người khác lừa đảo không có bằng chứng 
 ![failed image](https://i.ibb.co/Qvnjcg1/Screenshot-2021-07-23-20-33-47-29.png)
+![failed image](https://i.ibb.co/ygjsCVG/Pics-Art-07-23-08-50-17.jpg)
+![failed image](https://i.ibb.co/mD6SSFQ/Pics-Art-07-23-08-49-25.jpg)
+![failed image](https://i.ibb.co/MRFt9WN/Pics-Art-07-23-08-48-52.jpg)
 # sủi như con chó
 ![failed image](https://i.ibb.co/hWgTpkr/received-562069911486431.jpg)
 # khóa mẹ wall + out chính box của mình??? 
